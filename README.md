@@ -1,1 +1,0 @@
-# jyeszn.github.io
